@@ -1,1 +1,0 @@
-# AXX_theory
